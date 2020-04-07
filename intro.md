@@ -6,9 +6,9 @@
 2.  [What is Aram ?](
 https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#what-is-aram)
 3.	[Why should we believe what Thiruvalluvar says?](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#pramanams)
-3.	[Did Thiruvalluvar create Aram?]
+3.	[Did Thiruvalluvar create Aram?] (LINK)
 4.	Who is Parimelazhagar? 
-5.	What is Varnashrama Dharmam? 
+5.	[What is Varnashrama Dharmam?](LINK) 
 6.	Should Thirukkural be memorized?
 
 ## ANSWERS
@@ -135,3 +135,50 @@ Let’s take this example: A child runs to play in rain while his mother warns, 
 
 So, Aram existed in nature, long before Thiruvalluvar wrote about it. He is only an observer and so he did not record his name as the author of his work. 
 
+## VARNASHRAMA DHARMAM
+If a person decided live a solitary life in an isolated place, without interacting with anyone else, then there is no need for any kind of social structure or rules. But, when two people have decided to co-exist in a place, then both need rules for peaceful existence.
+
+As long as I am restricted to my room, I can keep my legs wherever I want, I can be clothed or not, whatever, it’s my choice. But the minute I invite another person in my room, then both have to follow certain rules. Certain restrictions are necessary to have a peaceful life. We should understand that the restrictions apply to both people and both suffer a loss of individual freedom.
+
+Similarly, in ancient Tamil society, when people decided to stay as a group there was a need to formulate rules. As a society too, when a rule is made, some where some group of people are losing their independent freedom in favor of the greater good. For eg: Parents lose their freedom in teaching their children. Children pick up what they see. So to impart good values to children parents make many modifications in their behavior. If we are going to fight for the lost individual freedom, the larger group will collapse. In a society we cannot have 100% freedom for all. Chanakya’s Needhi Nool (an ancient book on Political Science) also favors the idea of greater good for the greater number of people. He says that even if an individual somehow succeeds in having his individual freedom he will eventually go down when the society collapses.
+
+But how can one formulate rules for a diverse group of beings? People differ in terms of intelligence, age and skills. You can imagine the difficulty and complexity of such a task.  How can anyone frame a set of rules that will apply to all? To do that our ancestors understood that they had to divide the people into groups, using some criteria.
+
+But why divide? 
+Let’s take the example of a school. It is not the best way to have a single hall and throw all children in a single class and have a single syllabus for all. It is also impossible to make independent syllabus for each and every student. So we have divided children into groups based on age and/or skills and then create a syllabus for each group.
+
+Similarly, we can identify groups in the society before framing rules for them. Our ancestors thought about it and observed that society naturally progressed towards a certain kind of classification. They identified and named the classification and formulated rules for each group. Thus was born the first Dharmam (aram or rules) called Varnashrama Dharmam. A Dharmam that we, today’s learned people, have managed to drag to the witness stand with the accusation of being a forerunner of deterioration in a society. We identify it as the root cause of all the evils of caste system and the foundation of destruction of a society.
+
+Would a society that has been so advanced in their thinking, give the name “Dharmam” to something that would deteriorate them? We should try to answer this using anumana pramanam ? If our ancestors have intentionally named a socially destructive policy as Dharma, then we can safely conclude that they were real fools and there is nothing of value to learn from them. But in all fairness, we have to see why this was created before arriving at such a conclusion. Even if we don’t wholeheartedly accept the idea, it is our duty to at the very least know what got them to form this Dharmam before we analyze with our individual minds.
+
+The fundamental need for people is food, a basic need for survival. So a group of people with the required skill set came forward to do that task. This group formed the first pillar. They were the “Producers” (a.k.a Shudran). In today’s society, all workers who are involved in manual labor to produce goods would fall in this category. A carpenter, plumber, farmer, factory worker etc.
+
+But, the society was not complete. Problems arose. Each person produced one or two items and there was confusion in sharing. There was a  need to distribute the goods among people. The producers were not skilled at doing this. So another group of people came forward to do that. That group was the second pillar, the “Traders” group (a.k.a Vaishyan). All current day business people would fall in this category.
+
+Now, two problems emerged: The stronger person began to exploit the weaker. For eg, one person produced salt and another produced rice. Salt is fundamental to all food, we cannot live without salt but it takes less effort to make it. Rice on the other hand, requires more effort and it had alternatives. So salt manufactures exploited the importance of salt in the diet and they fixed exorbitant prices. Rice manufacturers suffered. Not only is their task difficult, but they could not fix high prices like salt producers, because people can live without rice.
+
+Additionally, a physically strong person was able to extort things from the less strong sections. For instance, a physically strong man could walk in a grab another’s wife or car. He always won. So now, there was a need for a protector. Someone stronger than the strongest man. Someone to say “hey stop it, you cannot do that”. A King cannot do this job alone. He needs a support group before he can govern the people. That group was called “Protectors” (a.k.a Kshatriyan), the third pillar. That group worked for the benefit of others. In our current society soldiers, judges, lawyers, policemen etc will fall in this category.
+
+Still problems persisted. The strength of a society lies in its intellectual advancement in all the previous groups. Otherwise economically the nation will be left behind. We all know that. So the last group of people had intellectual strength. They were good at research and advancing other areas. Their job was to make sure all other groups were most advanced in their fields. They worked to make better producers, better traders and better protectors. This group was the “Educator”, the fourth pillar. In our current society, teachers and researchers would fall in this category.
+
+These four groups are called Varnams in Tamil and they form the four pillars supporting ANY society. 
+
+When an object or person is useful to everyone, it commands more value. Because the protector and educator worked for the benefit of others, they automatically had more value and earned more respect. The people wanted them to have their complete focus on serving others and not be distracted by the problems of the commoners like the cost of pumpkins and the rising price of carrots and other day-to-day things. It is not possible to care about others when your own life needs are not taken care of. So there was a system of others paying for their needs. Hence emerged the system of paying taxes for the Protectors and Dakshina for educators. Since their needs were taken care of, they were able to dedicate their time to serve others.
+
+These classifications were not meant to be carried forward by birth. That is, a producer’s child could become a protector. A trader’s child could become an educator. This was how, the original structure was framed.
+
+Whether we name it or not, we have to agree that all countries have the above mentioned four groups.
+
+Now also there was a confusion in creating rules for people. Any human being has two roles. An individual role and a role in the society. We have seen the four roles a person can have in the society. As an individual person too, he moves from being a baby to a child and then to a teenager to a husband,  a father,  a grandfather, a great grandfather and so on.
+
+Can we create a single rule for all ages? For eg: There is a 3 year old, a 15 year old, a 25, 55, and 75 year old in the Educator group. Can we frame a rule for educators: don’t take interest in girls. This may apply for a 4 year old boy but what about a 25 year old man? It would be absurd. So a separation based on age was necessary.
+
+Four stages of life was observed in a person’s life. There was an age to learn – learning age (any trade had to be learnt). Next a person seeks a partner and has a family  - family age, an age to retire  - retirement age and an age to let go of everything and search for higher goals or self actualization goals –age to let go. These four groups are called Ashrams. The names given to each age were Brahmacharyam (learning age), Grihastam (family age), Vanaprastham (retirement age) and Sanyasam (age to let go).
+
+Now we can create a graph with the Varnams on the X axis and the Ashram on the Y axis. Our ancestors identified 16 groups of people and now they were ready for next task of framing rules for each group. 
+
+The rules for a Producer in the learning age would be different from the rules for an Educator in the same age. The rules for a trader in the family age will be different from his rules for his retirement age.
+
+It is our human tendency to sully every good intent, whether it is religion or electricity or internet and the Varnashrama Dharma is no exception. Our ancestors identified a natural occurrence in a society and organized it in a framework with the intention of framing rules for peaceful co-existence. We know what we have done with it today.
+
+Using this classification as a base, later authors wrote Aram (rules) for each group. Thiruvalluvar too bases Thirukkural on Varnashrama Dharmam.
