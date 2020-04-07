@@ -112,3 +112,21 @@ That is how our ancestors found out about solar system, the process of evolution
 Such a person who is able to remove his Anma and allow it to integrate with nature, will be able to get a true picture of ‘Truth’. That person is a Yogi, a human  renounced of all worldly possessions. When such a person says something, it is called Agama Pramanam. Ramanar, Jesus, Prophet, Thiruvalluvar, Paramahamsar are all examples of people who had Yoga Kaatchi.
 
 These agama pramanams are not meant to be disputed by regular humans. We do not have the capacity to argue against their words.  If what they say doesn’t make any sense, or goes against our beliefs then it can only mean that we haven’t fully understood it. It does not mean that they have made a mistake or that their words are irrelevant! Thiruvalluvar used his Yoga Kaatchi to observe Aram from nature and gave us Thirukkural. It is agama pramanam and hence has 100%  truth in it.
+
+## Nameless
+
+The preface or prologue of a book is called as “Payiram” in Tamil. In those days, there wasn’t a library or a digital catalogue to categorize books according to the subject. So the preface naturally became an important part of any book, as it gave an overview about the contents. This allowed a reader to spend her/his time wisely. The reader need not read the entire book to realize that it doesn’t fit with her area of interest.
+
+There are certain rules to write a preface for any book. As per Nanool and Tholkappiyam (ancient books on Tamil Grammar) a preface should contain, at the least (a) the name of the author (b) the place or the conference where the book made its debut (c) the name of the chairperson under whose leadership the book made its debut, and so on. There were also criteria to decide who was qualified to write the preface. All books in Tamil literature have a Payiram in accordance to these criteria.
+
+Thirukkural also contains a section on Payiram with 4 topics but none of them contain the required elements of the Payiram. Thiruvalluvar breaks all the rules. Interestingly, he does not even put down his name as the author of the book.
+
+Will I (or you) ever write a book that will stand good for thousands of years and leave my name out of it? We write books to make a name for us, don’t we?! We live in a time where people don’t hesitate to steal others’ ideas and publish as their own. But, Thiruvalluvar wrote this incredible book and left his name out of it. Why ?
+
+He didn’t mention his name because he believed that the concepts of Aram, which is what Thirukkural is about, did not belong to him. To take ownership of the book would mean the rules were his original ideas and that would amount to telling a lie. So he leaves his name out of the Masterpiece.
+
+We have to admire the truthfulness of the poet. We should understand that he was a man who was bound by Aram. Thiruvalluvar did not create these rules of life. His job was merely to observe from nature and record them in writing. He is not the origin of Aram. Aram existed even before Thiruvalluvar wrote about it.
+
+Let’s take this example: A child runs to play in rain while his mother warns, “if you play in the rain you will catch a fever”. The child does not listen and plays in the rain and catches a fever. Does that mean that he caught a fever because his mother said so? No, he caught a fever because he played in the rain. His mother knew this from her experience and observation. It is not her rule. Whether she observed or not, such a rule always existed in nature.
+
+So, Aram existed in nature, long before Thiruvalluvar wrote about it. He is only an observer and so he did not record his name as the author of his work. 
