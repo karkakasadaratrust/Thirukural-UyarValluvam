@@ -6,7 +6,7 @@
 2.  [What is Aram ?](
 https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#what-is-aram)
 3.	[Why should we believe what Thiruvalluvar says?](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#pramanams)
-3.	Did Thiruvalluvar create Aram?
+3.	[Did Thiruvalluvar create Aram?]
 4.	Who is Parimelazhagar? 
 5.	What is Varnashrama Dharmam? 
 6.	Should Thirukkural be memorized?
@@ -57,6 +57,10 @@ A fish has boundaries, that is, it can thrive well in water. A bird has its boun
 If all these living beings (living beings with 1 sense to 5 senses) have such an order in nature, what about us, a creature with 6 senses? Do we have such an order? Is it possible to live however we please and still have a peaceful life? It’s something to think about.
 
 If every other creation around us is able to maintain equilibrium with each other and exist in harmony, then there probably exists some order by which we, who are an equal part of creation, should live our lives, in order to live in harmony with creation. Such an order that applies to our individual lives is called as Aram or Dharmam.
+
+But why should some take the effort to write a book on Aram? What was the need to tell Aram for everyone? Is it so important? 
+
+No matter how wealthy, intelligent  and clever a person might me, a peaceful and happy life can only be had by someone who lives in the path of Aram. There can be no peaceful life for the rest.
 
 ## PRAMANAMS
 If humans must make their own mistakes in life and learn from scratch, every single time, then there is no use in our race being blessed with six senses. If fire is hot, then it is enough if one human learns it. Others must be able to benefit from that person’s experience.
@@ -130,3 +134,4 @@ We have to admire the truthfulness of the poet. We should understand that he was
 Let’s take this example: A child runs to play in rain while his mother warns, “if you play in the rain you will catch a fever”. The child does not listen and plays in the rain and catches a fever. Does that mean that he caught a fever because his mother said so? No, he caught a fever because he played in the rain. His mother knew this from her experience and observation. It is not her rule. Whether she observed or not, such a rule always existed in nature.
 
 So, Aram existed in nature, long before Thiruvalluvar wrote about it. He is only an observer and so he did not record his name as the author of his work. 
+
