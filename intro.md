@@ -10,6 +10,7 @@ https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#what-is-aram)
 4.	Who is Parimelazhagar? 
 5.	[What is Varnashrama Dharmam?](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#varnashrama-dharmam) 
 6.	Should Thirukkural be memorized?
+7.  [How can Thirukkural be enough for our all of our lives when it has only 1330 couplets?](LINK)
 
 ## ANSWERS
 ### TIMELESS TREASURES
@@ -182,3 +183,26 @@ The rules for a Producer in the learning age would be different from the rules f
 It is our human tendency to sully every good intent, whether it is religion or electricity or internet and the Varnashrama Dharma is no exception. Our ancestors identified a natural occurrence in a society and organized it in a framework with the intention of framing rules for peaceful co-existence. We know what we have done with it today.
 
 Using this classification as a base, later authors wrote Aram (rules) for each group. Thiruvalluvar too bases Thirukkural on Varnashrama Dharmam.
+
+## 1330 Couplets based on Purudartham
+
+We can imagine how big, a book that gives instructions on life should be. But, Thirukkural’s instructions total 1330 couplets with seven words per couplet. How is it possible to condense our entire life in one book?
+
+The contents of the book are organized in line with our daily activities. If we list down ALL the activities we perform in a single day of our life, they will fall into one of the following categories: 1) Aram/ Dharma activities (helping others, keeping ourselves clean etc), 2) Wealth seeking activities, 3) Pleasure seeking activities, 4) Activities towards Self actualization. There cannot be a fourth category. This classification is called Purudartham or Purushartham in Sanskrit.  
+
+Thirukkural has a set of instructions for the first three, in three broad sections called **Paal-s** they are,  
+1) Arathu Paal -  This section discusses the aram in how a husband and wife can live a happy life and perform good deeds.
+2) Porut Paal - This section discusses the aram in how a couple can earn money to do those good deeds.
+3) Inbathu Paal - To keep them motivated, the couple engage in pleasure activities. This section discusses the related arams. 
+4) Self Actualization - Valluvar does not have a section for the fourth activity because performing the above three activities in the right way will automatically lead a person to self actualization (more on that later).  
+
+Aram has three components: a) Instructions for right path b) Dispute resolution that will be needed when people slip from the right path (vazhakku in Tamil) c) Remedial actions (punishments, or thandam in Tamil) to put people  back on track. Parts b and c do not instruct people about leading a good life, so Thiruvalluvar ignores them and focuses only on Aram.  
+
+All humans go through four personal stages (Learning age, Family Age, Retirement Age, and Age for Self Actualization) and take up one of the four social roles (producer, trader, protector, and educator). Thirukkural talks about Aram that applies to all four social roles. As for the personal roles, he says that the Learning Age (Brahmacharyam) is a preparation for Family life (Grihastham). We all get an education to earn money to hopefully have a good family. Similarly, the Retirement age (Vanaprastham) is a preparation for Self Actualization (Sanyasam). When we retire, we learn to let go of things while we are still in a family life. This will prepare us to let go of other attachments to reach our final destination (Permanent Happiness).  
+
+So he combines the instructions for learning age and family age and under the tile Family Portion (Illarav-iyal), and combines instructions for Retirement age and Self Actualization age under a common heading Self Actualization Portion (Thuravarav-iyal).
+With that the portion of Arathu-Paal comes to an end. It is followed by Porut-Paal and Inbathu paal.  
+
+It is not possible to eat an entire cake without cutting it into smaller pieces. Similarly, Thirukkural has been subdivided into smaller sections (called Paal, Iyal,  and Athigaram ) and organized in a manner that follows a human’s natural progression in life. The book has three major parts called Paal-s in accordance with Purudartham. Each Paal  is further divided into subsections called Iyal-s. Each Iyal is divided into smaller sections called Athigarams and each Athigaram has 10 couplets called Kurals. Each Kural has 7 words, 4 in the first line and 3 in the second line. Thus, we have a total of 1330 Kurals.  
+ 
+And that is how, Thiruvalluvar condenses the instructions for our entire life in one book, in 1330 couplets (Kurals).  
