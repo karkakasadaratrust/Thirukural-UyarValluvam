@@ -4,8 +4,8 @@
 
 1.	[How is old Tamil Literature relevant for modern times?](LINK1)
 
-2.  What is Aram ?
-3.	[Why should we believe what Thiruvalluvar says?](LINK2)
+2.  [What is Aram ?](LINK2)
+3.	[Why should we believe what Thiruvalluvar says?](LINK3)
 3.	Did Thiruvalluvar create Aram?
 4.	Who is Parimelazhagar? 
 5.	What is Varnashrama Dharmam? 
@@ -48,6 +48,15 @@ is probably something of value in it – a timeless piece of knowledge that is e
 What She has destroyed, it should be understood that it is not necessary for our current time period.
 So if She has chosen to preserve something that is more than 2000 years old, then we should understand that there is some element of
 truth in it. Maybe it has something that is necessary in our current days.
+
+## WHAT IS ARAM
+When we lie under the sky on a full moon night, with the moon and the stars above us, we realize that there is some order in nature. So many planets and  galaxies are around us, but they are all following a certain order.  If suddenly one planet removes itself from the orbit, and spins off course, the entire Universe would collapse. We are sitting here and reading this page in peace only because some order is existing in creation, whether we realize it or not.
+
+A fish has boundaries, that is, it can thrive well in water. A bird has its boundaries and as long as it respects that boundary, it can live beautifully. The same logic goes for a flower or deep sea creatures. A deep sea creature cannot survive in shallow water and a flower dies if it is separated from the plant. As long as creation operates within its specified boundary, there is harmony.
+
+If all these living beings (living beings with 1 sense to 5 senses) have such an order in nature, what about us, a creature with 6 senses? Do we have such an order? Is it possible to live however we please and still have a peaceful life? It’s something to think about.
+
+If every other creation around us is able to maintain equilibrium with each other and exist in harmony, then there probably exists some order by which we, who are an equal part of creation, should live our lives, in order to live in harmony with creation. Such an order that applies to our individual lives is called as Aram or Dharmam.
 
 ## PRAMANAMS
 If humans must make their own mistakes in life and learn from scratch, every single time, then there is no use in our race being blessed with six senses. If fire is hot, then it is enough if one human learns it. Others must be able to benefit from that person’s experience.
