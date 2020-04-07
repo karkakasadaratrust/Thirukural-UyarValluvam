@@ -156,7 +156,7 @@ Umapathy Sivachariar is a well known Shaivite Guru from Chidambaram, who wrote e
 
 Interestingly, five of them are original books and Parimelazhagar’s Urai is the only Note for a Main Book. So this tells us that reading Parimelazhagar’s Urai will give a knowledge that is equivalent to reading one of the main books.  
 
-Whether we become great scholars in Tamil or not, we WILL excel in living our lives when we read Thirukkural. But we should not read it as a lesson. It is essential to capture the  Unarvu. Only then the 100% purpose of the book is served. It is not necessary to give importance to the words, or memorize them. Just an understanding of the fundamental idea is enough.  
+Whether we become great scholars in Tamil or not, one thing is certain: we WILL excel in living our lives when we read Thirukkural. But we should not read it as a lesson. It is essential to capture the  Unarvu. Only then the 100% purpose of the book is served. It is not necessary to give importance to the words, or memorize them. Just an understanding of the fundamental idea is enough.  
 
 ## VARNASHRAMA DHARMAM
 If a person decided live a solitary life in an isolated place, without interacting with anyone else, then there is no need for any kind of social structure or rules. But, when two people have decided to co-exist in a place, then both need rules for peaceful existence.
