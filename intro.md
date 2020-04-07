@@ -2,10 +2,10 @@
 
 ### FAQ
 
-1.	[How is old Tamil Literature relevant for modern times?](LINK1)
-
-2.  [What is Aram ?](LINK2)
-3.	[Why should we believe what Thiruvalluvar says?](LINK3)
+1.	[How is old Tamil Literature relevant for modern times?](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#timeless-treasures)
+2.  [What is Aram ?](
+https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#what-is-aram)
+3.	[Why should we believe what Thiruvalluvar says?](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#pramanams)
 3.	Did Thiruvalluvar create Aram?
 4.	Who is Parimelazhagar? 
 5.	What is Varnashrama Dharmam? 
