@@ -6,9 +6,9 @@
 2.  [What is Aram ?](
 https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#what-is-aram)
 3.	[Why should we believe what Thiruvalluvar says?](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#pramanams)
-3.	[Did Thiruvalluvar create Aram?] (LINK)
+3.	[Did Thiruvalluvar create Aram?](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#nameless)
 4.	Who is Parimelazhagar? 
-5.	[What is Varnashrama Dharmam?](LINK) 
+5.	[What is Varnashrama Dharmam?](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#varnashrama-dharmam) 
 6.	Should Thirukkural be memorized?
 
 ## ANSWERS
