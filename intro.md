@@ -7,10 +7,9 @@
 https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#what-is-aram)
 3.	[Why should we believe what Thiruvalluvar says?](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#pramanams)
 3.	[Did Thiruvalluvar create Aram?](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#nameless)
-4.	Who is Parimelazhagar? 
+4.	[Who is Parimelazhagar?]
 5.	[What is Varnashrama Dharmam?](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#varnashrama-dharmam) 
-6.	Should Thirukkural be memorized?
-7.  [How can Thirukkural be enough for our all of our lives when it has only 1330 couplets?](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#1330-couplets-based-on-purudartham)
+6. [How can Thirukkural be enough for our all of our lives when it has only 1330 couplets?](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#1330-couplets-based-on-purudartham)
 
 ## ANSWERS
 ### TIMELESS TREASURES
@@ -125,6 +124,39 @@ We have to admire the truthfulness of the poet. We should understand that he was
 Let’s take this example: A child runs to play in rain while his mother warns, “if you play in the rain you will catch a fever”. The child does not listen and plays in the rain and catches a fever. Does that mean that he caught a fever because his mother said so? No, he caught a fever because he played in the rain. His mother knew this from her experience and observation. It is not her rule. Whether she observed or not, such a rule always existed in nature.
 
 So, Aram existed in nature, long before Thiruvalluvar wrote about it. He is only an observer and so he did not record his name as the author of his work. 
+
+## PARIMELAZHAGAR
+When we set out to learn something from a book, we should learn to absorb  it from the point of view of the author. We may have many ideas ourselves about the topic, but all of that should be kept aside. We should attempt to see what the author’s viewpoint is.  But, how can we make sure that we are indeed looking at any book from the author’s mindset?  
+
+We should understand the basics of written communication. There are three levels of communication: Words, Meaning, and Emotion (Unarvu).  
+Words are used to communicate ideas. When we read (a story book, a newspaper or this blog) we go from the words to the meaning behind them. From the meaning we must move to the emotion and/or the concept (Unarvu in Tamil).  When we move to the Unarvu all the differences will cease to exist. The following example will help.
+
+1.At the first level, we exchange ideas through words. But this level of communication is not free of differences. For example, the words – Mom, Amma, Momia, Ma all refer to the same thing (that is, Mother). But these words indicate a difference in language.  
+
+2.At the second level of communication we go to the meaning. Mom, Momiaa and Ma may differ in language but they all mean the same thing. So at the level of meaning, some differences are eliminated. But still, when we think of Mom, an English speaking woman wearing western clothes come to mind, Amma triggers an image of a south Indian lady wearing a saree, Momia may trigger an image of a Spanish mother. So differences still remain.  
+
+3.At the third level, if we move to the emotion or to the feeling of “Motherhood”, that feeling is universal. Be it an American, Indian, Chinese or Spanish, we all feel the same unconditional love when we think of Motherhood. Now, communication is complete. When two people are united at the Unarvu level, there will be no corruption in exchange of ideas.  
+
+So when reading anything, we should look for the Unarvu. That will give the true intention of the author. When drinking coffee from a cup, we drink the coffee and discard the cup. The purpose of the cup is only to serve the coffee. Similarly, once we reach the meaning carried by the words, we can mentally disregard the words. And once we reach the Unarvu from the meaning, we can disregard the meaning.  
+Five hundred years after Thirukkural was written, there was a need for an explanation of Thiruvalluar’s work. Thiruvalluvar was a man of few words. He condensed many great truths in few words. Such a technique of condensing big Truths in few words, is called Soothiram in Tamil. Tamil poetic literature is based on Soothiram. It is a science in itself.  
+
+Imagine if we have to stuff a lot of cotton in a small glass jar. We can adopt many techniques. We may roll them into threads, or small balls and stuff them in the box, pack it tightly and stuff some more and so on. When taking the cotton out, a similar technique must be employed. Only someone who understands how it was stuffed, will be able to successfully extract a small piece of cotton. Others will simply dig, push, punch and eventually break the jar in frustration. Simmilarly, we need a guru to tell us how to un-stuff the information from Thirukkural.  
+
+The proper way of way of learning Tamil is this order: 1) Letters or alphabets (Ezhuthukkal) 2) Vocabulary (Nigandu/Agarathi) 3) Grammar (Ilakkanam) and 4) Logic & Reasoning (Tharkam)  
+
+These four are called Instrument Books (or Karuvi Noolgal, in Tamil). A knowledge of these four will enable one with tools to stuff and un-stuff big truths using few words (Grammar and Logic are the two handles for this purpose). Using these tools, anyone can  read any Tamil literature with ease.  
+
+In our current days NO-ONE learns Tamil in this way. No one even knows that such books exist. It’s no wonder that our knowledge of Tamil is extremely superficial and we are unable to read a literary work in good depth.  
+
+Five hundred years post Thirukkural, Nature gave us a Guru, who was a saint called Parimelazhagar. He was a scholar and was one with Thriuvalluvar at the Unarvu level. He wrote a book explaining Thirukkural in conceptual and grammatical detail. Such a book that explains the concepts of another work is called Urai in Tamil. He gives conceptual and grammatical explanations on Thirukkural in his explanatory review, Parimelazhagar’s Urai. This is the book that our Guru Ilangai.Jeyaraj adopted to teach us.  
+
+When you and I read Thirukkural, we will start with the words and search for the meaning from the dictionary. But when Parimelazhagar reads Thirukkural he already knows what the author is trying to say and then he understands why a particular word was used to express that idea. So, his explanation of Thirukkural will be unique because he will explain the unwritten concepts behind the words.   
+
+Umapathy Sivachariar is a well known Shaivite Guru from Chidambaram, who wrote eight out of the fourteen Shaivite Shastras in his book called Siddantha Attagam. (His guru is Maraignana Sambandar, a disciple of Arulnanandi Sivacharya. These are big names in the Shaivite family). He says that a person who has read the following six books is considered an expert in Tamil: 1) Thirukkural 2) Thiruvasagam 3) Tolkappiam 4) Parimelazhagar’s Urai 5) Periya Puranam 6) Sivangana Sithiyar.  
+
+Interestingly, five of them are original books and Parimelazhagar’s Urai is the only Note for a Main Book. So this tells us that reading Parimelazhagar’s Urai will give a knowledge that is equivalent to reading one of the main books.  
+
+Whether we become great scholars in Tamil or not, we WILL excel in living our lives when we read Thirukkural. But we should not read it as a lesson. It is essential to capture the  Unarvu. Only then the 100% purpose of the book is served. It is not necessary to give importance to the words, or memorize them. Just an understanding of the fundamental idea is enough.  
 
 ## VARNASHRAMA DHARMAM
 If a person decided live a solitary life in an isolated place, without interacting with anyone else, then there is no need for any kind of social structure or rules. But, when two people have decided to co-exist in a place, then both need rules for peaceful existence.
