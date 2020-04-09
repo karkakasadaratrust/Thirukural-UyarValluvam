@@ -8,7 +8,7 @@ https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#what-is-aram)
 3.	[Why should we believe what Thiruvalluvar says?](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#pramanams)
 3.	[Did Thiruvalluvar create Aram?](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#nameless)
 4.	[Who is Parimelazhagar?](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#parimelazhagar)
-5. [What is the right way to lean Tamil ?](LINK)
+5. [What is the right way to lean Tamil ?](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#how-to-learn-tamil)
 6.	[What is Varnashrama Dharmam?](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#varnashrama-dharmam) 
 7. [How can Thirukkural be enough for our all of our lives when it has only 1330 couplets?](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#1330-couplets-based-on-purudartham)
 
