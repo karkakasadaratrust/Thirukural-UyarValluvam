@@ -32,6 +32,7 @@ In the current age of advanced technology, nearly all of us have are equipped wi
 If we question as to why Nature chose to preserve certain written documents, the only obvious answer seems to be that there is probably something of value in it – a timeless piece of knowledge that is essential for a happy life on this earth.
 What She has destroyed, it should be understood that it is not necessary for our current time period. So if She has chosen to preserve something that is more than 2000 years old, then we should understand that there is some element of truth in it. Maybe it has something that is necessary for life in our current days.  
 
+[(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#faq)
 ## WHAT IS ARAM
 When we stare at the sky on a full moon night, with the moon and the stars above us, we realize that there is some order in nature. There are many planets and  galaxies are around us, but they are all following a certain order.  If suddenly one planet removes itself from the orbit, and spins off course, the entire Universe would collapse. We are sitting here and reading this page in peace only because some order is existing in creation, whether we realize it or not.
 
