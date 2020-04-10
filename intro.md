@@ -11,7 +11,7 @@ https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#what-is-aram)
 5. [What is the right way to lean Tamil ?](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#how-to-learn-tamil)
 6.	[What is Varnashrama Dharmam?](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#varnashrama-dharmam) 
 7. [How can Thirukkural be enough for our all of our lives when it has only 1330 couplets?](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#1330-couplets-based-on-purudartham)
-8. [A bit more on Tamil Language](LINK)
+8. [A bit more on Tamil Language](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#tamil-language)
 
 ## ANSWERS
 ### TIMELESS TREASURES
