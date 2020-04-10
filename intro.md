@@ -220,8 +220,9 @@ With that the portion of Arathu-Paal comes to an end. It is followed by Porut-Pa
 It is not possible to eat an entire cake without cutting it into smaller pieces. Similarly, Thirukkural has been subdivided into smaller sections (called Paal, Iyal,  and Athigaram ) and organized in a manner that follows a human’s natural progression in life. The book has three major parts called Paal-s in accordance with Purudartham. Each Paal  is further divided into subsections called **Iyal-s**. Each Iyal is divided into smaller sections called **Athigarams** and each Athigaram has 10 couplets called **Kurals**. Each Kural has 7 words, 4 in the first line and 3 in the second line. Thus, we have a total of 1330 Kurals.  
 
 And that is how, Thiruvalluvar condenses the instructions for our entire life in one book, in 1330 couplets (Kurals).  
+[(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#faq)  
 
-##TAMIL LANGUAGE
+## TAMIL LANGUAGE
 How did language come into existence?  
 
 We now understand that humans are blessed with the sixth sense called Manam and that it helps to record events of our lives in all the births. With all the recordings, the Manam gets overloaded. Humans needed a way to lighten and there was a need to share the recordings. Thankfully nature has designed us such that when we share happy recordings our happiness doubles and when we share negative recordings our grief lessens. So we needed a mechanism to share our recordings. The need for language arose.  
@@ -285,4 +286,6 @@ Ancestral Tamilians didn’t take pride in inventing long words or creating word
 
 Language developed further. Language developers said, sometimes even sound is not necessary to communicate. Eyes are enough. For eg:  A group of donation seekers come to a house on a Sunday afternoon asking the husband for money to build  a temple. The man takes his purse out, with the intention of giving Rs.5000, the wife gives a piercing look. He immediately understands her intention and gives out Rs.500! or a more familiar example, where a bunch of college boys are standing by the road and a busload of girls come by, hundreds of eye signals will communicate to each other to identify the pretty girls in the group. No sounds were used, when the minds are united at the Unarvu level just silent glances are sufficient.  
 
-Communication started as hand gestures, later grew to many paragraphs and with the advancement of human mind, finally shrunk to mere glances. 
+Communication started as hand gestures, later grew to many paragraphs and with the advancement of human mind, finally shrunk to mere glances.    
+
+[(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#faq)
