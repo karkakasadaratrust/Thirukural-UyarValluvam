@@ -11,6 +11,7 @@ https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#what-is-aram)
 5. [What is the right way to lean Tamil ?](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#how-to-learn-tamil)
 6.	[What is Varnashrama Dharmam?](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#varnashrama-dharmam) 
 7. [How can Thirukkural be enough for our all of our lives when it has only 1330 couplets?](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#1330-couplets-based-on-purudartham)
+8. [A bit more on Tamil Language](LINK)
 
 ## ANSWERS
 ### TIMELESS TREASURES
@@ -219,3 +220,69 @@ With that the portion of Arathu-Paal comes to an end. It is followed by Porut-Pa
 It is not possible to eat an entire cake without cutting it into smaller pieces. Similarly, Thirukkural has been subdivided into smaller sections (called Paal, Iyal,  and Athigaram ) and organized in a manner that follows a human’s natural progression in life. The book has three major parts called Paal-s in accordance with Purudartham. Each Paal  is further divided into subsections called **Iyal-s**. Each Iyal is divided into smaller sections called **Athigarams** and each Athigaram has 10 couplets called **Kurals**. Each Kural has 7 words, 4 in the first line and 3 in the second line. Thus, we have a total of 1330 Kurals.  
 
 And that is how, Thiruvalluvar condenses the instructions for our entire life in one book, in 1330 couplets (Kurals).  
+
+##TAMIL LANGUAGE
+How did language come into existence?  
+
+We now understand that humans are blessed with the sixth sense called Manam and that it helps to record events of our lives in all the births. With all the recordings, the Manam gets overloaded. Humans needed a way to lighten and there was a need to share the recordings. Thankfully nature has designed us such that when we share happy recordings our happiness doubles and when we share negative recordings our grief lessens. So we needed a mechanism to share our recordings. The need for language arose.  
+
+Today we are living in a world where we are all proficient in atleast two languages and are good at verbal and written communication. But think of the earliest man before the invention of language. How must he have communicated his ideas? Maybe by body movements or hand gestures? But that wasn’t enough to communicate ideas. He understood that he could make different sounds and then began the mode of communicating through sounds.  
+
+Early humans wanted to represent sound as a symbol and thus letters were born. The function of the letter is to recall a sound, that’s all. The symbol for a sound is also called as Aksharam. It is not clear who created the Tamil Letter, (the belief is Lord Shiva created the letters and Lord Muruga was the authority on the subject and he later passed it on to Sage Agathiyar and so on). 
+
+In Tamil there are a total of 30 alphabets. 12 are vowels and 18 are consonants. We have one letter called “ak” (ஃ) that is called Ayutha Letter. Letters were also assigned gender. All the vowels were masculine and all the consonants were feminine. “ak” (ஃ) is an Androgynous Letter. The vowels and consonants “mix” and 216 Uyir Mei letters are born (The rules for mixing are called “punarchi” rules. Punarchi literally means “mating”). In all, a total of 247 letters are there in Tamil.
+
+Interestingly the vowels are called Soul letters (Uyir ezhuthukkal), Uyir means soul (or Atma) and the consonants are called Body letters (Mei ezhuthukkal), Mei means body. Why would they name the letters thus? They could have named them Clean and unclean letters or higher and lower letters or something like that. Why is there a reference to soul and body?  
+
+When we refer to a person, Ms. A for example, we refer to both the soul and the body of the person. Without soul, “it” is just a body, and without body “it” is just a ghost! So the name of a person refers to both soul and the body. We can see the body, but we cannot see the soul. We understand the presence of the soul indirectly, that is, because the body is working, we understand that the soul present.  
+
+A good language should be easy to understand. That means the rules have to be clear. The characteristics of a letter were defined as:  
+
+1.   One letter should represent one sound.
+Letters were invented to recall a sound. There are no silent letters or capital letters. 
+
+2.   Each letter has a written form and a sound form. The written form may vary over time, but the sound should not change.  
+
+The sound of a letter cannot depend on individual words. If a letter is allowed to take a different sound in a word then such a modification will be observed in all similar words. For eg: the letter “ka” (க), can take the sound “ha” in words like, kaa-ka-m, Naa-ka-m, thaa-ka-m, but this will be a rule that will apply to all similar sounding words. That is, the modification can be stated as a rule like  “ka can take the sound ha when it comes between the nedil uyir-mei letter and mei letter”.
+
+We can contrast this with English, to understand better. Eg: In English, the sound of the letter “u” is different in “but” and “put” or the sound of “o” in “hose”, “dose” and “lose” (Cow/how/low – beard/heard – good/food/blood). We can learn these differences only by practice.  
+
+3.   The time to pronounce a letter was also defined.  
+
+“Mathirai” is a unit of time. It is equal to the time taken to bat the eyelid or the time taken to produce a sound with the middle finger pressed against the thumb and snapped. That unit of time is called one Mathirai.  
+
+Coming to the nature of humans. Our ancestors understood that masculine and feminine traits were found in all humans. We can have a man with more feminine traits and a woman with more masculine traits. Depending on the level of masculinity, men were classified as two types:
+ 1) Ones with Masculine traits and  
+ 2) Ones with Less Masculine traits.  
+
+Depending on the level of Femininity, women were classified into three types:
+1) Extremely feminine (Mellinam)  
+2) High on masculine traits (Vallinam)  
+3) Somewhere in the middle (Idaiyinam).   
+
+In Ramayanam, when Sage Viswamitrar takes Raman to the forest he encounters Tataka , a Vallinam lady (Vallinam women are natural warriors), next he introduced him to Ahalya an example of Idaiyinam lady and finally to Sita who is a Mellinam lady who Raman eventually marries.  
+
+This classification was applied to letters too.
+Vowels (masculine letters) are of two types. We have 7 letters that have to be sounded for 2 Mathirais (they are called Nedil letters) and 5 letters that have to be sounded for 1 mathirai (they are called kuril letters).  
+
+Consonants (female letters) have to be sounded for half a Mathirai.  Among consonants six are Vallinam, six are Mellinam, and six are Idaiyinam.  
+
+The letter “ak” (ஃ) is an androgynous letter because it sometimes assumes a masculine role and other times a feminine role in different places. It is mostly used in poetry and sometimes is sounded for 1 mathirai (like masculine letters) and sometimes sounded for half mathirai (like a feminine letter).  
+
+Uyir letters and Mei letters “mix” or “join” to form Uyir Mei letters. There are rules for this mixing. Take the following example.  
+
+க் (feminite letter) + அ (masculine letter) = க
+ik + a = ka  
+
+Here, க் (ik) has half mathirai,  அ (a) has 1 mathirai but க (ka), the result has only 1 mathirai (Not one and half as expected).
+When a body and soul are joined, the body is visible but the soul is hidden. Similarly, the result க (ka) takes on the function (sound and mathirai) of the soul (Uyir)  letter and the appearance of Body (Mei) letter க். And that is why letters were named as Soul letters (Uyir letters) and Body letters (Mei letters).  
+
+One cannot help but wonder, the depth of thought that has gone behind the creation of these letters. It seems almost like the language has a life of its own. 
+
+Now, letters were born, and then letters were formed into words and sentences and so on. In the early days humans took a lot of words to express a simple idea. But as civilization advanced, people became adept at using fewer words to express their ideas. Five sentences were used in the place of ten. It then reduced to one sentence, and then to one word and one letter. A language is said to be advanced, if fewer words are used to express an idea.
+
+Ancestral Tamilians didn’t take pride in inventing long words or creating wordy passages. The maximum length of a word is only seven (Uthratathi, which is a name of a star).  The language went a step further and allowed for one letter words (nee – You; vaa – come; thaa - Give; Po –Go). The language advanced some more -  and said some sounds without any letters could also be used for communication and formed a part of the language. For eg: a group of kids are playing nosily in the living room and the father arrives with his boss. As he enters the house he clears his throat. This sound of the throat clearing cannot be expressed in letters but it communicates a message to the children and they understand that their father needs a quiet place for his guest and clear the living room immediately.  
+
+Language developed further. Language developers said, sometimes even sound is not necessary to communicate. Eyes are enough. For eg:  A group of donation seekers come to a house on a Sunday afternoon asking the husband for money to build  a temple. The man takes his purse out, with the intention of giving Rs.5000, the wife gives a piercing look. He immediately understands her intention and gives out Rs.500! or a more familiar example, where a bunch of college boys are standing by the road and a busload of girls come by, hundreds of eye signals will communicate to each other to identify the pretty girls in the group. No sounds were used, when the minds are united at the Unarvu level just silent glances are sufficient.  
+
+Communication started as hand gestures, later grew to many paragraphs and with the advancement of human mind, finally shrunk to mere glances. 
