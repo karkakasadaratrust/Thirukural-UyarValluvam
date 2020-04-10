@@ -102,9 +102,9 @@ In order to understand how important it is to pay attention to every word, and h
 
 This is the starting line on Parimelazhagar’s Urai:  
 
-In Tamil: இந்திரன் முதலிய இறைவர் பதங்களும்...  
+**In Tamil: இந்திரன் முதலிய இறைவர் பதங்களும்...  
 Transliteration: Indiran Muthaliya Iraivar Pathangalum  
-Word-to-word meaning: Indiran such as Higher Padams (Meaning - Higher Padams such as Indiran Padam)  
+Word-to-word meaning: Indiran such as Higher Padams (Meaning - Higher Padams such as Indiran Padam)**
 
 Explanation:  
 
@@ -121,9 +121,9 @@ So in this first line, Parimelazhagar says that, (in order to reach) Padams such
 
 Now, the first line continues…   
 
-In Tamil: அந்தம் இல் இன்பத்து அழிவு இல் வீடும்…   
+**In Tamil: அந்தம் இல் இன்பத்து அழிவு இல் வீடும்…   
 Transliteration: antham / il / inbathu / azhivu/  il / veedum  
-Word-to-word meaning: Ending / no / Happiness / Destruction / no / Veedu (Meaning – (to reach a place of) Never ending and Indestructible happiness called Veedu)  
+Word-to-word meaning: Ending / no / Happiness / Destruction / no / Veedu (Meaning – (to reach a place of) Never ending and Indestructible happiness called Veedu)** 
 
 Explanation  
 Reaching Padams did not leave a man happy. When his karma was over, the existence in Padam was also over. Man was clever, he wanted a place where there was permanent, unlimited, never ending happiness. He searched hard and succeeded and found the existence of Veedu. It can be understood as our final destination. After several births, we finally reach our home.   
@@ -133,26 +133,26 @@ This is the crucial part: Veedu is roughly characterized (The exact definition f
 So Parimelazhagr says, (In order to reach Padams) and a place called veedu, that is a place of indestructible and endless happiness…
 The first line continues…  
 
-In Tamil: நெறி அறிந்து எய்துதற்கு உரிய மாந்தர்க்கு …   
+**In Tamil: நெறி அறிந்து எய்துதற்கு உரிய மாந்தர்க்கு …   
 Transliteration: neri / arinthu /eithutharkku/ uriya/ maantharkku…  
 Word-to-word meaning: Moral Principles / on knowing / taking up or adopting / capable of / for humans  
-(Meaning – For a human being who is capable of adopting moral Principles).  
+(Meaning – For a human being who is capable of adopting moral Principles).**
 
 Explanation  
 A person can get rich by winning a lottery. But he will not be able to teach someone how to become rich. Only someone who has done the hard work and earned richness can give guidance to others. Similarly, some people get to Veedu by accident. Such people cannot teach others how to get there. Only someone who has planned their life in a certain way and achieved Veedu can teach others. So Parimelazhagr says, he is going to give instructions to someone who is willing and who is capable of adopting a certain set of Principles in their life. For those who are not ready to follow any Principles, this book is of no use, he says.   
 
 The first line continues…  
 
-In Tamil: உறுதி என உயர்ந்தோரான் எடுக்கப்பட்ட பொருள் நான்கு. அவை அறம், பொருள், இன்பம், வீடு என்பன.  
+**In Tamil: உறுதி என உயர்ந்தோரான் எடுக்கப்பட்ட பொருள் நான்கு. அவை அறம், பொருள், இன்பம், வீடு என்பன.  
 Transliteration: uruthi/ena /uyarnthoraan/ edukkappatta/ porul/naangu./ avai/ aram / porul /inbam/ veedu/ enpana.  
 Word-to-word meaning: 100% guaranteed / as / by learned / taken / topics/ four. They are/ Aram/wealth/pleasure/Veedu such as.  
-(Meaning – learned elders have taken four topics, such as aram, wealth, pleasure, Veedu to guarantee Padam and Veedu  for a human being who is capable of adopting moral Principles.)  
+(Meaning – learned elders have taken four topics, such as aram, wealth, pleasure, Veedu to guarantee Padam and Veedu  for a human being who is capable of adopting moral Principles.)**
 
 Explanation  
 
 Here Parimelazhagar says that learned elders have taken four broad categories under which the Principles will be laid down. We have seen the categories in the earlier FAQ section (Purudartham) as Aram, Wealth, Pleasure, Veedu.  
 
-To sum it up, P.A.’s first two lines tell us that Learned elders have taken up four broad topics called Aram, Wealth, Pleasure, Veedu, to lay down the path that guarantees Padams such as Indiran etc and Veedu which is characterized by endless and indestructible happiness, for human beings who are capable of living a Principled life.  
+To sum it up, Parimelazhagar’s first two lines tell us that Learned elders have taken up four broad topics called Aram, Wealth, Pleasure, Veedu, to lay down the path that guarantees Padams such as Indiran etc and Veedu which is characterized by endless and indestructible happiness, for human beings who are capable of living a Principled life.  
 
 This finishes the first two lines of the Introduction. We must allow allow time for the message to sink in. Just two lines need so much explanation. But that’s the way to read these books. We can jump directly into the Kurals and rush through all of them without these introductions, but that’s not going to help us much. Our Guru always says it’s alright to go slow, whatever little we read we have to get an in-depth understanding. That’s the way our ancestors taught. It’s called Marapu Kalvi (Traditional Way of transferring knowledge across generations).  
 
