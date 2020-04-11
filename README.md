@@ -56,7 +56,7 @@ If we question as to why Nature chose to preserve certain written documents, the
 What She has destroyed, it should be understood that it is not necessary for our current time period. So if She has chosen to preserve something that is more than 2000 years old, then we should understand that there is some element of truth in it. Maybe it has something that is necessary for life in our current days.  
 
 
-[(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#faq)
+[(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#faq)
 
 ## WHAT IS ARAM
 When we stare at the sky on a full moon night, with the moon and the stars above us, we realize that there is some order in nature. There are many planets and  galaxies are around us, but they are all following a certain order.  If suddenly one planet removes itself from the orbit, and spins off course, the entire Universe would collapse. We are sitting here and reading this page in peace only because some order is existing in creation, whether we realize it or not.
@@ -69,7 +69,7 @@ If every other creation around us is able to maintain equilibrium with each othe
 But why should some take the effort to write a book on Aram? What was the need to tell Aram for everyone? Is it so important? 
 No matter how wealthy, intelligent  and clever a person might me, a peaceful and happy life can only be had by those who choose to live in harmoney with nature - that is who walks the path of Aram. There can be no peaceful life for the rest.  
 
-[(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#faq)
+[(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#faq)
 
 ## PRAMANAMS
 If humans must make their own mistakes in life and learn from scratch, every single time, then there is no use in our race being blessed with six senses. If fire is hot, then it is enough if one human learns it. Others must be able to benefit from that person’s experience.
@@ -119,7 +119,7 @@ Such a person who is able to remove his Anma and allow it to integrate with natu
 
 These Agama Pramanams are not meant to be disputed by regular humans. We do not have the capacity to argue against their words.  If what they say doesn’t make any sense, or goes against our beliefs then it can only mean that we haven’t fully understood it. It does not mean that they have made a mistake or that their words are irrelevant! Thiruvalluvar used his Yoga Kaatchi to observe Aram from nature and gave us Thirukkural. It is agama Pramanam and hence has 100%  truth in it.
 
-[(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#faq)
+[(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#faq)
 
 ## Nameless Masterpiece
 The preface or prologue of a book is called as “Payiram” in Tamil. In those days, there wasn’t a library or a digital catalogue to categorize books according to the subject. So the preface naturally became an important part of any book, as it gave an overview about the contents. This allowed a reader to spend her/his time wisely. The reader need not read the entire book to realize that it doesn’t fit with her area of interest.  
@@ -135,7 +135,7 @@ We have to admire the truthfulness of the poet. We should understand that he was
 Let’s take this example: A child runs to play in rain while his mother warns, “if you play in the rain you will catch a fever”. The child does not listen and plays in the rain and catches a fever. Does that mean that he caught a fever because his mother said so? No, he caught a fever because he played in the rain. His mother knew this from her experience and observation. It is not her rule. Whether she observed or not, such a rule always existed in nature.
 So, Aram existed in nature, long before Thiruvalluvar wrote about it. He is only an observer and so he did not record his name as the author of his work. 
 
-[(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#faq)
+[(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#faq)
 
 ## PARIMELAZHAGAR
 When we set out to learn something from a book, we should learn to absorb it from the point of view of the author. We may have many ideas ourselves about the topic, but all of that should be kept aside. We should attempt to see what the author’s viewpoint is.  But, how can we make sure that we are indeed looking at any book from the author’s mindset?    
@@ -162,14 +162,14 @@ Umapathy Sivachariar is a well known Shaivite Guru from Chidambaram, who wrote e
 Interestingly, five of them are original books and Parimelazhagar’s Urai is the only Note for a Main Book. So this tells us that reading Parimelazhagar’s Urai will give a knowledge that is equivalent to reading one of the main books.  
 Whether we become great scholars in Tamil or not, one thing is certain: we WILL excel in living our lives when we read Thirukkural. But we should not read it as a lesson. It is essential to capture the Unarvu. Only then the 100% purpose of the book is served. It is not necessary to give importance to the words, or memorize them. Just an understanding of the fundamental idea is enough.  
 
-[(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#faq)
+[(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#faq)
 
 ### How to learn Tamil?
 The proper way of way of learning Tamil is this order: 1) Letters or alphabets (Ezhuthukkal) 2) Vocabulary (Nigandu/Agarathi) 3) Grammar (Ilakkanam) and 4) Logic & Reasoning (Tharkam).  
 
 These four are called Instrument Books (or Karuvi Noolgal, in Tamil). A knowledge of these four will enable one with tools to stuff and un-stuff big truths using few words (Grammar and Logic are the two handles for this purpose). Using these tools, anyone can read any Tamil literature with ease.  
 
-[(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#faq)
+[(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#faq)
 
 ## VARNASHRAMA DHARMAM
 If people decided live a solitary life in an isolated place, without interacting with anyone else, then there is no need for any kind of social structure or rules. But, when two people have decided to co-exist in a place, then both need rules for peaceful existence.
@@ -218,7 +218,7 @@ It is our human tendency to sully every good intent, whether it is religion or e
 
 Using this classification as a base, later authors wrote Aram (rules) for each group. Parimelazhagar adops the Varnashrama Dharma in explaining Thirkkural.  
 
-[(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#faq)
+[(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#faq)
 
 ## 1330 Couplets based on Purudartham  
 
@@ -242,7 +242,7 @@ With that the portion of Arathu-Paal comes to an end. It is followed by Porut-Pa
 It is not possible to eat an entire cake without cutting it into smaller pieces. Similarly, Thirukkural has been subdivided into smaller sections (called Paal, Iyal,  and Athigaram ) and organized in a manner that follows a human’s natural progression in life. The book has three major parts called Paal-s in accordance with Purudartham. Each Paal  is further divided into subsections called **Iyal-s**. Each Iyal is divided into smaller sections called **Athigarams** and each Athigaram has 10 couplets called **Kurals**. Each Kural has 7 words, 4 in the first line and 3 in the second line. Thus, we have a total of 1330 Kurals.  
 
 And that is how, Thiruvalluvar condenses the instructions for our entire life in one book, in 1330 couplets (Kurals).  
-[(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#faq)  
+[(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#faq)  
 
 ## TAMIL LANGUAGE
 How did language come into existence?  
@@ -310,4 +310,4 @@ Language developed further. Language developers said, sometimes even sound is no
 
 Communication started as hand gestures, later grew to many paragraphs and with the advancement of human mind, finally shrunk to mere glances.    
 
-[(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/intro.md#faq)
+[(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#faq)
