@@ -21,7 +21,7 @@
 
 
 ## Uyar Valluvam
-WIth the blessings of God, Uyar Valluvam is a platform to learn Thirukkural. Our guru Ilangai. Jeyaraj conducts monthly lectures on Thirukkual and this app is a product of his teachings. Parimelazhagar's Urai is closely follwed in these lectures.
+WIth the blessings of God, Uyar Valluvam is a platform to learn Thirukkural. Our guru Ilangai. Jeyaraj conducts lectures on Thirukkual and this app is a product of his teachings. Parimelazhagar's Urai is closely follwed in these lectures.
 
 ### FAQ
 
@@ -30,9 +30,9 @@ WIth the blessings of God, Uyar Valluvam is a platform to learn Thirukkural. Our
 3.	[Why should we believe what Thiruvalluvar says?](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#pramanams)
 3.	[Did Thiruvalluvar create Aram?](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#nameless-masterpiece)
 4.	[Who is Parimelazhagar?](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#parimelazhagar)
-5. [What is the right way to lean Tamil ?](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#how-to-learn-tamil)
+5. [What is the right way to learn Tamil ?](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#how-to-learn-tamil)
 6.	[What is Varnashrama Dharmam?](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#varnashrama-dharmam) 
-7. [How can Thirukkural be enough for our all of our lives when it has only 1330 couplets?](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#1330-couplets-based-on-purudartham)
+7. [How can Thirukkural be enough for all of our lives when it has only 1330 couplets?](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#1330-couplets-based-on-purudartham)
 8. [A bit more on Tamil Language](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#tamil-language)
 
 ## ANSWERS
