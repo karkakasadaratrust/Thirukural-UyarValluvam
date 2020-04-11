@@ -21,7 +21,7 @@
 
 
 ## Uyar Valluvam
-WIth the blessings of God, Uyar Valluvam is a platform to learn Thirukkural, organised by Karka Kasadara (www.karka.in). Our guru Ilangai. Jeyaraj conducts lectures on Thirukkual and this app is a product of his teachings. Parimelazhagar's Urai is closely followed in these lectures.
+WIth the blessings of God, Uyar Valluvam is a platform to learn Thirukkural, organised by Karka Kasadara Trust(www.karka.in). Our guru Ilangai. Jeyaraj conducts lectures on Thirukkural and this app is a product of his teachings. Parimelazhagar's Urai is closely followed in these lectures.
 
 ### FAQ
 
