@@ -174,7 +174,8 @@ _இப்பாட்டான் முதற்கடவுளது உண�
 ## ஆங்கில கருத்தாக்கம் 
 ### Transliteration
 
-“Agara mudhala ezhuthellam aadhi bhagavan mudhatre ulagu.”  
+Agara mudhala ezhuthellam aadhi  
+bhagavan mudhatre ulagu.  
      
 ### Short Explanation 
 
