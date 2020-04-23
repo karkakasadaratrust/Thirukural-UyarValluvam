@@ -145,7 +145,7 @@ We have a mind that also has 4 parts. They are
 2.	Buthi (for confirming),
 3.	Ahangaram (to motiviate), 
 4.	and Chitam. 
-These 4 parts are also called as** Andha Karnangal**. Chitam is the base from which, and on which the other 3 parts of the mind are formed.
+These 4 parts are also called as**Andha Karnangal**. Chitam is the base from which, and on which the other 3 parts of the mind are formed.
 So, the process of seeing (hearing/smelling/touching/tasting) would involve an interaction of the mind with the external organ – let’s take the example of the eye and see the involvement of the mind in the process of “seeing”.
 1.    When the eye sees a rose, an image falls on the retina (this image is also called Vayir Kaatchi or Poriyr Kaatchi) and is sent to the Manam (the unrecognized image in our Manam is called Nirivigarpa Kaatchi).  
 2.    The job of Manam is to analyze. The Manam searches, in this case, it analyzes *** ‘is this a rose, or a cat or a chair’***  against the data previously stored in the Buthi.  
