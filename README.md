@@ -83,6 +83,7 @@ WIth the blessings of God, Uyar Valluvam is a platform to learn Thirukkural, org
 8. [A bit more on Tamil Language](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#tamil-language)
 9. [Different ways to relate to God - from Saiva Siddhantham](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#aruvam-aru-uruvam-and-uruvam)  
 10. [Different steps in worshipping God as shown by Saiva Siddhantham or Saiva Naatpaathangal](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#sariyai-kiriyai-yogam-gnanam)  
+11. [What is Yogam? (Patanjali's Ashtanga Yogam)]()
   
 ## ANSWERS
 ### TIMELESS TREASURES
@@ -117,6 +118,8 @@ If every other creation around us is able to maintain equilibrium with each othe
 
 But why should some take the effort to write a book on Aram? What was the need to tell Aram for everyone? Is it so important? 
 No matter how wealthy, intelligent  and clever a person might me, a peaceful and happy life can only be had by those who choose to live in harmoney with nature - that is who walks the path of Aram. There can be no peaceful life for the rest.  
+
+Aram refers to our boundaries. What are the things that we are allowed to do and what are the things we are not allowed, if we want to lead a happy life (vithithana seithal and vilakiyathai ozhithal).  
 
 [(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#faq)
 
@@ -432,4 +435,32 @@ Some other schools of thought argue that Yogam can lead to Mukthi directly. But 
 This will lead one to Veedu.
  
 
-[(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#faq)
+[(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#faq)  
+
+###Pathanjali’s Ashtanga Yoga
+In today’s world we see that Yoga is a separate branch where the teaching primarily starts with asanas. Siddhantam includes Yogam as a step in reaching God (As seen in Saiva Natpathangal). The cure of disease, stress reduction etc are only Avanthara benefits. The core benefit is reaching Mukthi.  
+
+Sage Patanjali gave us something called Yoga Sutras. Yoga means Union. Any activity, eg: playing cricket, requires a step by step approach. Yoga is also like that. Yoga is an eight step process. (No, it does not begin with asanam). The first four steps are only preparatory. The 8 steps are:  
+
+1.	Yamam  
+2.	Niayam  
+3.	Asanam  
+4.	Pranayamam  
+5.	Pratyaharam  
+6.	Dharanai  
+7.	Dhyanam  
+8.	Samadhi  
+
+**Yamam** means getting rid of bad habits, and **Niyamam** is adopting good habits. This is in short the Aram (Vithithana seithal, vilakkiyathai ozhithal) as mentioned by Thirukkural. Without this, Yoga must not be touched. Why? Because in the path of Yoga, Ashtama Siddhis (8 powers) will be received (Anima, Mahim,a Lahima etc). These 8 abilities will give a human, super powers. Eg: Lord Hanuman could reduce himself to the size of an atom (anima) and blow Himself up to the size of a mountain (Lahima). One could get the ability to walk through walls. Imagine if such abilities came to the hands of ordinary people not knowledgeable in Aram. What a nightmare the world would be! Yogis will make use of such abilities to help other souls or reduce others’ suffering (not for showcasing their talents.)  
+
+**Asana**: When we sit for meditation, our body should cooperate. For that we need practice. In olden days we used to sit on the floor easily. But in modern times, our lifestyles have changed. Not many can sit in one place without heeding to the ensuing pain. Hence it is necessary to train our body to stay still by practicing the asanas so that the body doesn’t interfere when we try to control the mind.   
+
+**Pranayamam**: This refers to the control of Pranan in the breath. There is a relation between Three Gunas and the prana. By effectively controlling the breath, it is possible to get the respective guna.  
+
+**Pratyahara**: Many thoughts will arise in the mind. Some are good and others are bad. If we are able to replace a bad thought with a good one, that’s called Pratyaharam.  
+
+**Dharanai**: The ability to focus on one particular good thought. (Any God is chosen)   
+
+**Dhyanam**: The ability to stay with that particular good thought for a prolonged period of time.  
+
+**Samadhi**: The single thought will lead one to thoughtlessness. This is the state in which we were born (Adhi means beginning).  Getting us to that Adhi state is Samadhi. In this state, the Manam, Bhuddi and Ahangaram are stilled and the pure Chitta remains. In this state, one can easily reach Veedu.
