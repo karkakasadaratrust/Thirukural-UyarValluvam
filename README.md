@@ -81,6 +81,8 @@ WIth the blessings of God, Uyar Valluvam is a platform to learn Thirukkural, org
 6.	[What is Varnashrama Dharmam?](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#varnashrama-dharmam) 
 7. [How can Thirukkural be enough for all of our lives when it has only 1330 couplets?](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#1330-couplets-based-on-purudartham)
 8. [A bit more on Tamil Language](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#tamil-language)
+9. [Different ways to relate to God - from Saiva Siddhantham]()
+10.[Different steps in worshipping God as shown by Saiva Siddhantham or Saiva Naatpaathangal]()
 
 ## ANSWERS
 ### TIMELESS TREASURES
