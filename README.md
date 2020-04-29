@@ -73,7 +73,7 @@ WIth the blessings of God, Uyar Valluvam is a platform to learn Thirukkural, org
 ### FAQ
 
 1.	[How is old Tamil Literature relevant for modern times?](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#timeless-treasures)
-2.  [What is Aram ?](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#what-is-aram)
+2. [What is Aram ?](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#what-is-aram)
 3.	[Why should we believe what Thiruvalluvar says?](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#pramanams)
 3.	[Did Thiruvalluvar create Aram?](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#nameless-masterpiece)
 4.	[Who is Parimelazhagar?](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#parimelazhagar)
@@ -82,7 +82,7 @@ WIth the blessings of God, Uyar Valluvam is a platform to learn Thirukkural, org
 7. [How can Thirukkural be enough for all of our lives when it has only 1330 couplets?](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#1330-couplets-based-on-purudartham)
 8. [A bit more on Tamil Language](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#tamil-language)
 9. [Different ways to relate to God - from Saiva Siddhantham](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#aruvam-aru-uruvam-and-uruvam)  
-10.[Different steps in worshipping God as shown by Saiva Siddhantham or Saiva Naatpaathangal](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#sariyai-kiriyai-yogam-gnanam)  
+10. [Different steps in worshipping God as shown by Saiva Siddhantham or Saiva Naatpaathangal](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#sariyai-kiriyai-yogam-gnanam)  
   
 ## ANSWERS
 ### TIMELESS TREASURES
