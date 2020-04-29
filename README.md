@@ -379,7 +379,7 @@ At the second level God comes down in a semi-form state. This is for people for 
 
 At the third level, God comes down in a worldly form. This is for people who need a form that they can relate to. Maybe the form of a child that reminds us of innocence and joy, or the form of a cow that is soft and gentle, or the form of a powerful woman to remind of the power beyond us. We need to see that form physically, to believe in it. That kind of worship is called Uruvam worship (Uruvam means ‘form or shape’ in Tamil).   
 
-It is below the first and second level, in terms of closeness to the final swaroopam level, but it is not wrong. People in the [Sariyai and Kiriyai](https://github.com/anbarasu0504/UyarValluvam/blob/master/%E0%AE%95%E0%AF%81%E0%AE%B1%E0%AE%B3%E0%AF%8D/0002.md#sariyai-kiriyai-yogam-gnanam) path tend to worship God in Uruvam and aru-uruvam states.  
+It is below the first and second level, in terms of closeness to the final swaroopam level, but it is not wrong. People in the [Sariyai and Kiriyai](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#sariyai-kiriyai-yogam-gnanam) path tend to worship God in Uruvam and aru-uruvam states.  
 
 In the first kural, Thiruvalluvar mentions that God is everywhere. He didn’t specify any shape or place so he is referring to a formless God.  Parimelazhagar points to us that, this is the first level or the Aruvam level of worship (In the subsequent Kurals the other levels will be introduced). The second Kural mentions the feet of God, hence it is a Uruvam level of worship.  
 
