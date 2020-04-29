@@ -407,7 +407,7 @@ The four stages of worship are (one stage will lead to the next automatically):
 
 **Kiriyai** is when the external worship touches an internal meaning. Now imagine that the child grows up, and gets married and is expecting his first child. Now the pregnant wife is in the operation theater and the doctor says that the situation is critical and only one life can be saved. The young husband goes to the church/temple/place of worship and with folded arms and tears in eyes asks God to save both lives. At this instant, the Sariyai worship deepened and went to Kiriyai. The mind which gave a cursory bow to the idol now touches a new meaning behind the idol. where the external worship touches the internal worship.  
 
-**Yogam:** At the third level, there is no need for a picture or idol of God. A person can simply sit and close their eyes, and the temple comes to them. Some people can connect to God without going to the temple. This is Yogam.  
+[**Yogam:**](https://github.com/anbarasu0504/UyarValluvam#pathanjalis-ashtanga-yoga) At the third level, there is no need for a picture or idol of God. A person can simply sit and close their eyes, and the temple comes to them. Some people can connect to God without going to the temple. This is Yogam.  
 
 As can be seen, these types of worship cater to the differences in people’s mind. So there is no need to look down upon any one method. An analogy: When adding two numbers, a child in first grade will require his fingers to count whereas a child in the tenth grade will give the answer instantly. There is no need to tease each other. The first grade child will eventually come to tenth grade and have the same ease. Similarly, the people in Sariyai will come to Yogam gradually.   
 
