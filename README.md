@@ -360,3 +360,50 @@ Language developed further. Language developers said, sometimes even sound is no
 Communication started as hand gestures, later grew to many paragraphs and with the advancement of human mind, finally shrunk to mere glances.    
 
 [(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#faq)
+
+ ### Aruvam, Aru-Uruvam and Uruvam
+Broadly speaking, Siddhantam says that God has two states of being. 
+1.	Swaroopam
+2.	Thadathai  
+     a. Aruvam  
+     b.	Aru-uruvam  
+     c.	Uruvam  
+     
+The first state is called Swaroopam. This is the truest form, which humans cannot comprehend and hence cannot be described by words. We cannot measure an ocean using a small cup. So it is not possible to describe the Superior Power using our limited language. It is for each of us to experience at the end of our journey. We must first accept the presence of such a power. Whether it is Jesus, or Allah or Nature, it exists, that’s all.  
+
+Then what is the use of such a God who can neither be understood nor be described?  
+He has another state of being called Thadathai which humans can describe in their vocabulary. In Thadathai, God comes down in three different forms for humans to understand.  
+
+At the first level God comes down in the formless state for those people who are high on logic and reasoning. They don’t need a form or a shape to understand things. Their brain works differently, they find it comfortable to believe that God is everywhere, and there is no need for a temple or statue that would limit His presence. For them God comes down in the formless state. This state of God is called Aruvam state (Aruva Nilai in Tamil). Such a worship is called Aruvam worship. People on the Yogam Path worship God in the Aruvam state.  
+At the second level God comes down in a semi-form state. This is for people for whom it is necessary to have some form, not necessarily a human form, something like the Lingam or a cross – a symbolic representation. This is called the Aru-Uruvam style of worship.  
+
+At the third level, God comes down in a worldly form. This is for people who need a form that they can relate to. Maybe the form of a child that reminds us of innocence and joy, or the form of a cow that is soft and gentle, or the form of a powerful woman to remind of the power beyond us. We need to see that form physically, to believe in it. That kind of worship is called Uruvam worship (Uruvam means ‘form or shape’ in Tamil).   
+
+It is below the first and second level, in terms of closeness to the final swaroopam level, but it is not wrong. People in the [Sariyai and Kiriyai](https://github.com/anbarasu0504/UyarValluvam/blob/master/%E0%AE%95%E0%AF%81%E0%AE%B1%E0%AE%B3%E0%AF%8D/0002.md#sariyai-kiriyai-yogam-gnanam) path tend to worship God in Uruvam and aru-uruvam states.  
+
+In the first kural, Thiruvalluvar mentions that God is everywhere. He didn’t specify any shape or place so he is referring to a formless God.  Parimelazhagar points to us that, this is the first level or the Aruvam level of worship (In the subsequent Kurals the other levels will be introduced). The second Kural mentions the feet of God, hence it is a Uruvam level of worship.  
+
+[(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#faq)  
+
+### Sariyai, Kiriyai, Yogam, Gnanam  
+
+People are of different kinds. We see differences even between siblings, husbands and wives, parents and children. For some of us, logic and reasoning are the driving force in life. For some of us, our emotions rule our lives. Is it possible then, to have a single way of approaching God ?  
+Eg: Imagine a school that had only one class, one lesson plan and one teacher for all students. This school admits students from the age of five to ninety all in the same class. How effective will the teaching be? Siddhantham didn’t believe it was a good idea, so they put forth a four step approach.  
+
+They said that all worship will have to start with the external worship. It is impossible for someone to just close their eyes and be one with God without prior training in the external worship method. If someone is able to do that, it means they have had such a training in their previous birth.  
+
+The four steps of worship are:
+1) External worship Or Sariyai  
+2) External-Internal Worship - Or Kiriyai  
+3) Fully Internal Worship or Yogam and  
+4) Becoming one with the Supreme or Gnanam.  
+
+The following example will help understand better. In many families we will see the parents tell the children to fold their hands or kneel down and pray. The child will do it automatically without understanding the meaning. Many youngsters are also like this. While going in the bike or cycle when they come across a temple, they will gently bow and give a cursory salute. This is the external form or Sariyai worship and there is nothing wrong with it. It is a necessary first step.  
+
+Now imagine that the child grows up, and gets married and is expecting his first child. Now the pregnant wife is in the operation theater and the doctor says that the situation is critical and only one life can be saved. The young husband goes to the church/temple and with folded arms and tears in eyes asks God to save both lives. His relationship with the Almighty just deepened. The mind which gave a cursory bow to the idol now touches a new meaning behind the idol. Now, he has touched the next level. This is the Kiriyai level of worship, where the external worship touches the internal worship.  
+
+At the third level, there is no need for a picture or idol of God. A person can simply sit and close their eyes, and the temple comes to them. This is Yogam.  
+
+The final destination is Gnanam wherein comes the oneness with the Supreme Power. This will lead one to Veedu.  
+
+[(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#faq)
