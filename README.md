@@ -437,7 +437,7 @@ This will lead one to Veedu.
 
 [(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#faq)  
 
-###Pathanjali’s Ashtanga Yoga
+## Pathanjali’s Ashtanga Yoga
 In today’s world we see that Yoga is a separate branch where the teaching primarily starts with asanas. Siddhantam includes Yogam as a step in reaching God (As seen in Saiva Natpathangal). The cure of disease, stress reduction etc are only Avanthara benefits. The core benefit is reaching Mukthi.  
 
 Sage Patanjali gave us something called Yoga Sutras. Yoga means Union. Any activity, eg: playing cricket, requires a step by step approach. Yoga is also like that. Yoga is an eight step process. (No, it does not begin with asanam). The first four steps are only preparatory. The 8 steps are:  
