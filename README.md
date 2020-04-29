@@ -83,7 +83,7 @@ WIth the blessings of God, Uyar Valluvam is a platform to learn Thirukkural, org
 8. [A bit more on Tamil Language](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#tamil-language)
 9. [Different ways to relate to God - from Saiva Siddhantham](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#aruvam-aru-uruvam-and-uruvam)  
 10. [Different steps in worshipping God as shown by Saiva Siddhantham or Saiva Naatpaathangal](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#sariyai-kiriyai-yogam-gnanam)  
-11. [What is Yogam? (Patanjali's Ashtanga Yogam)]()
+11. [What is Yogam? (Patanjali's Ashtanga Yogam)](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#pathanjalis-ashtanga-yoga)
   
 ## ANSWERS
 ### TIMELESS TREASURES
@@ -463,4 +463,6 @@ Sage Patanjali gave us something called Yoga Sutras. Yoga means Union. Any activ
 
 **Dhyanam**: The ability to stay with that particular good thought for a prolonged period of time.  
 
-**Samadhi**: The single thought will lead one to thoughtlessness. This is the state in which we were born (Adhi means beginning).  Getting us to that Adhi state is Samadhi. In this state, the Manam, Bhuddi and Ahangaram are stilled and the pure Chitta remains. In this state, one can easily reach Veedu.
+**Samadhi**: The single thought will lead one to thoughtlessness. This is the state in which we were born (Adhi means beginning).  Getting us to that Adhi state is Samadhi. In this state, the Manam, Bhuddi and Ahangaram are stilled and the pure Chitta remains. In this state, one can easily reach Veedu.  
+
+[(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#faq)  
