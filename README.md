@@ -386,24 +386,50 @@ In the first kural, Thiruvalluvar mentions that God is everywhere. He didn’t s
 [(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#faq)  
 
 ### Sariyai, Kiriyai, Yogam, Gnanam  
+People are of different kinds. We see differences even between siblings, husbands and wives, parents and children. For some of us, logic and reasoning are the driving force in life. For some of us, our emotions rule our lives. Is it possible then to have a single way of approaching God?  
 
-People are of different kinds. We see differences even between siblings, husbands and wives, parents and children. For some of us, logic and reasoning are the driving force in life. For some of us, our emotions rule our lives. Is it possible then, to have a single way of approaching God ?  
-Eg: Imagine a school that had only one class, one lesson plan and one teacher for all students. This school admits students from the age of five to ninety all in the same class. How effective will the teaching be? Siddhantham didn’t believe it was a good idea, so they put forth a four step approach.  
+Eg: Imagine a school that had only one class, one lesson plan and one teacher for all students. This school admits students from the age of five to ninety all in the same class. How effective will the teaching be?  
 
-They said that all worship will have to start with the external worship. It is impossible for someone to just close their eyes and be one with God without prior training in the external worship method. If someone is able to do that, it means they have had such a training in their previous birth.  
+Siddhantham didn’t believe it was a good idea, so they put forth a four step approach.  
 
-The four steps of worship are:
-1) External worship Or Sariyai  
-2) External-Internal Worship - Or Kiriyai  
-3) Fully Internal Worship or Yogam and  
-4) Becoming one with the Supreme or Gnanam.  
+They said that all worship will have to start with the external worship. It is impossible for someone to just close their eyes and be one with God without prior training in the external worship method. (If someone is able to do that, it means they have had such a training in their previous birth). For many, God is still a distant concept. How to start a relationship with Him? We have to start from simple rituals. It may not mean much initially but when the need arises, the process will allow one to go a little deeper.  
 
-The following example will help understand better. In many families we will see the parents tell the children to fold their hands or kneel down and pray. The child will do it automatically without understanding the meaning. Many youngsters are also like this. While going in the bike or cycle when they come across a temple, they will gently bow and give a cursory salute. This is the external form or Sariyai worship and there is nothing wrong with it. It is a necessary first step.  
+The four stages of worship are (one stage will lead to the next automatically):
+1.	External worship Or Sariyai  
+2.	External-Internal Worship - Or Kiriyai  
+3.	Fully Internal Worship or Yogam and  
+4.	Becoming one with the Supreme or Gnanam.  
 
-Now imagine that the child grows up, and gets married and is expecting his first child. Now the pregnant wife is in the operation theater and the doctor says that the situation is critical and only one life can be saved. The young husband goes to the church/temple and with folded arms and tears in eyes asks God to save both lives. His relationship with the Almighty just deepened. The mind which gave a cursory bow to the idol now touches a new meaning behind the idol. Now, he has touched the next level. This is the Kiriyai level of worship, where the external worship touches the internal worship.  
+**Sariyai** refers to external form of worship. The following example will help understand better. In many families we will see the parents tell the children to fold their hands or kneel down and pray. The child will do it automatically without understanding the meaning. Many youngsters are also like this. While going in the bike or cycle when they come across a temple, they will gently bow and give a cursory salute. This is the external form or Sariyai worship. It is a simple bow or a hand gesture. That’s all. It may even be done out of compulsion, nevertheless, Siddhantham allows it. It says, there is nothing wrong with it as it is a necessary first step.  
 
-At the third level, there is no need for a picture or idol of God. A person can simply sit and close their eyes, and the temple comes to them. This is Yogam.  
+**Kiriyai** is when the external worship touches an internal meaning. Now imagine that the child grows up, and gets married and is expecting his first child. Now the pregnant wife is in the operation theater and the doctor says that the situation is critical and only one life can be saved. The young husband goes to the church/temple/place of worship and with folded arms and tears in eyes asks God to save both lives. At this instant, the Sariyai worship deepened and went to Kiriyai. The mind which gave a cursory bow to the idol now touches a new meaning behind the idol. where the external worship touches the internal worship.  
 
-The final destination is Gnanam wherein comes the oneness with the Supreme Power. This will lead one to Veedu.  
+**Yogam:** At the third level, there is no need for a picture or idol of God. A person can simply sit and close their eyes, and the temple comes to them. Some people can connect to God without going to the temple. This is Yogam.  
+
+As can be seen, these types of worship cater to the differences in people’s mind. So there is no need to look down upon any one method. An analogy: When adding two numbers, a child in first grade will require his fingers to count whereas a child in the tenth grade will give the answer instantly. There is no need to tease each other. The first grade child will eventually come to tenth grade and have the same ease. Similarly, the people in Sariyai will come to Yogam gradually.   
+
+**What is Gnanam ?**  
+
+As we go down the Yogam path, we will reach a stage of **“irandara kalathal” (Together yet separable).**  
+
+In yogam, three entities will be present: (1) The person who is trying to reach God, (2) the method of reaching, (3) God. But in “irandara kalathal” there is only one entity. The person, the method and the object of prayer all become one. How do we understand this?  
+
+Consider this example: There is a man on a cycle and he is carrying a long iron pole over his shoulder. There is another lady walking behind within a safe distance to make sure the pole doesn’t hurt her. An observer is observing this scene from a distance.
+Suddenly a car comes in front of the cycle, and the man stops suddenly. The lady bends down suddenly to avoid collision. The observer, who is keenly watching this, also bends down as if it is his neck on the line.  We may have also experienced this behavior in us in our lives:  a vicarious threat and the ensuing sudden movement. What’s happening is, for a brief moment, the observer “becomes” the lady and hence the experience of the lady becomes the experience of the observer. The lady and the observer are separable sure, but they become “together” in that brief moment. This is “irandara kalathal”.   
+
+In Gnanam, a soul becomes “One” with God. God and the soul are still two different entities, but they become one (as in the example mentioned above).  When milk and water are mixed, it looks like one homogenous mixture. But we can still separate the water from milk when we boil the mixture (The water becomes vapour).  
+
+Siddhantam maintains that God and Soul are two separate entities. One doesn’t become the Other. This may be a point of departure from other philosophies. Tamil, Thirukkural, and Philosophy are closely knit. It is necessary to delve into any one Philosophy to understand Thirukkural. Thirukkural also touches on a different Philosophy in a later Chapter.  
+
+But for understanding the Kurals, we need a base and for that purpose we try to touch the surface of Saiva Siddhanta Philosophy  
+.
+A side note: Saiva Siddhantham goes into further sub-classifications of the Natpathangal as (Unamai & Upaaya Sariyai, Kiriyai etc). In total, they have come up with 32 classifications and they say that many more are still possible because people are of many kind.  
+
+When “irandara kalathal” happens a wisdom dawns. That wisdom is called **“Gnanam”**. This gnanam is the limit of our Intelligence. The last point of Tamil’s intelligence or understanding of creation is “Gnanam”. Once this happens, the God will become visible – we call that **“Mukthi”**.  
+
+Some other schools of thought argue that Yogam can lead to Mukthi directly. But Siddhantham specifies that Yogam leads to Gnanam which then leads to “Mukthi”.  
+
+This will lead one to Veedu.
+ 
 
 [(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#faq)
