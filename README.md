@@ -455,7 +455,7 @@ Sage Patanjali gave us something called Yoga Sutras. Yoga means Union. Any activ
 
 **Asana**: When we sit for meditation, our body should cooperate. For that we need practice. In olden days we used to sit on the floor easily. But in modern times, our lifestyles have changed. Not many can sit in one place without heeding to the ensuing pain. Hence it is necessary to train our body to stay still by practicing the asanas so that the body doesn’t interfere when we try to control the mind.   
 
-**Pranayamam**: This refers to the control of Pranan in the breath. There is a relation between Three Gunas and the prana. By effectively controlling the breath, it is possible to get the respective guna.  
+**Pranayamam**: This refers to the control of Pranan in the breath. There is a relation between [Three Gunas](https://github.com/anbarasu0504/UyarValluvam/blob/master/%E0%AE%85%E0%AE%A4%E0%AE%BF%E0%AE%95%E0%AE%BE%E0%AE%B0%E0%AE%AE%E0%AF%8D/001.md#introduction-to-chapter-1---praise-of-god-understanding-the-tri-gunas) and the prana. By effectively controlling the breath, it is possible to get the respective guna.  
 
 **Pratyahara**: Many thoughts will arise in the mind. Some are good and others are bad. If we are able to replace a bad thought with a good one, that’s called Pratyaharam.  
 
