@@ -144,28 +144,35 @@ The Kaatchi Pramanam needs more explanation. There are 4 types of Kaatchi (Kaatc
 2.    Manutha Kaatchi (The recognized image in the mind)
 3.    Thanvedanai Kaatchi (The response experienced by the Soul)
 4.    Yoga Kaatchi (The true untarnished vision experienced by our Soul)
-To understand these, we need to understand how sense organs work. Just the presence of sense organs alone is not enough to experience the world. We need the mind to process the data sent by the sense organs. We all know that we have 5 sense organs. 
+To understand these, we need to understand how sense organs work. Just the presence of sense organs alone is not enough to experience the world. We need the mind to process the data sent by the sense organs. We all know that we have 5 sense organs.   
+
 We have a mind that also has 4 parts. They are 
 1.	Manam (for analyzing)
 2.	Buthi (for confirming),
 3.	Ahangaram (to motiviate), 
-4.	and Chitam. 
-These 4 parts are also called as **Andha Karnangal**. Chitam is the base from which, and on which the other 3 parts of the mind are formed.
-So, the process of seeing (hearing/smelling/touching/tasting) would involve an interaction of the mind with the external organ – let’s take the example of the eye and see the involvement of the mind in the process of “seeing”.
-1.    When the eye sees a rose, an image falls on the retina (this image is also called Vayir Kaatchi or Poriyr Kaatchi) and is sent to the Manam (the unrecognized image in our Manam is called Nirivigarpa Kaatchi).  
-2.    The job of Manam is to analyze. The Manam searches, in this case, it analyzes *** ‘is this a rose, or a cat or a chair’***  against the data previously stored in the Buthi.  
-3.    The Buthi has all data recordings of not only this birth but of all the births that we have ever taken (instincts are stored here like the immediate action of an infant to turn its head to nurse). Buthi confirms that the image is that of a rose (the confirmed image in the buthi is called Sarvigatpa Kaatchi) and sends it back to Manam (this recognized image in the Manam is called Manutha kaatchi).  
-4.    Now the Manam generates a response that is either a happy or a sad one (for instance, when we see our enemy we have negative responses, a rose may generate happy response) and this response is called Thanvethanai Katchi and it is felt by our Uyir (or soul)
+4.	and Chitam.   
+
+These 4 parts are also called as **Andha Karnangal**. Chitam is the base from which, and on which the other 3 parts of the mind are formed.  
+
+So, the process of seeing (hearing/smelling/touching/tasting) would involve an interaction of the mind with the external organ – let’s take the example of the eye and see the involvement of the mind in the process of “seeing”.  
+
+1. When the eye sees a rose, an image falls on the retina (this image is also called Vayir Kaatchi or Poriyr Kaatchi) and is sent to the Manam (the unrecognized image in our Manam is called **Nirivigarpa Kaatchi**).  
+2. The job of Manam is to analyze. The Manam searches, in this case, it analyzes *** ‘is this a rose, or a cat or a chair’***  against the data previously stored in the Buthi.  
+3. The Buthi has all data recordings of not only this birth but of all the births that we have ever taken (instincts are stored here like the immediate action of an infant to turn its head to nurse). Buthi confirms that the image is that of a rose (the confirmed image in the buthi is called **Sarvigatpa Kaatchi**) and sends it back to Manam (this recognized image in the Manam is called Manutha kaatchi).  
+4. Now the Manam generates a response that is either a happy or a sad one (for instance, when we see our enemy we have negative responses, a rose may generate happy response) and this response is called **Thanvethanai Katchi** and it is felt by our Uyir (or soul).  
+
 And that is how, we experience life. We can forget about the names of all the Kaatchis and grasp only the concept.
- We can observe our mind doing all of the above mentioned analyzing and confirming work, when we engage in a slightly difficult task, like listening to music and trying to identif a raga, or when looking at a difficult math problem and thinking of a solution.
+
+We can observe our mind doing all of the above mentioned analyzing and confirming work, when we engage in a slightly difficult task, like listening to music and trying to identif a raga, or when looking at a difficult math problem and thinking of a solution.
 When we are multi-tasking, even though we feel like we are doing many things at the same time, the response to the sense organs actually takes place sequentially, in our mind. But because of the speed of the mind, it appears as if we are typing and singing and listening at the same time. The job of Ahangaram is to keep us motivated and prevent us from getting tired doing all this mental work.  
 
-**Anumana Pramanam** (also called Karuthal Alavai in Tamil) is determining the truth by inference. When two objects are closely related, the presence of one means that the other object is also present. For eg: the presence of smoke indicates the presence of fire. If is a person is a thief, there is a good chance that lying can also be found. But, this method is also not 100% accurate.
+**Anumana Pramanam** (also called Karuthal Alavai in Tamil) is determining the truth by inference. When two objects are closely related, the presence of one means that the other object is also present. For eg: the presence of smoke indicates the presence of fire. If is a person is a thief, there is a good chance that lying can also be found. But, this method is also not 100% accurate.  
+
 At the end of this cognition, who or where does the final experience, positive or negative occur? They say that it is the Uyir also called Anma(soul) which is the only intelligent part of us that experiences the final result. The 4 parts of the mind and 5 sense organs do not possess any inherent intelligence. Just as how when we use spectacles or a telescope to see things, we don’t say that the spectacle or telescope has any intelligence. It is the observer’s Uyir that possesses the intelligence. The Anma uses the sense organs to see or hear or taste etc.  
 
 Anma is trapped inside the body and therefore its experience is limited to how long our eyes can see (or how far our ears can hear etc). So, if the Anma wants to experience seeing the Himalayas it has to drag the body along.  
 
-Our ancestors found this as a great inconvenience. What if they could remove the Anma and allow it to experience the world? A direct experience that would not need any sense organs and body. They researched and succeeded. And that is called the Yoga Kaatchi.
+Our ancestors found this as a great inconvenience. What if they could remove the Anma and allow it to experience the world? A direct experience that would not need any sense organs and body. They researched and succeeded. And that is called the **Yoga Kaatchi**.
 That is how our ancestors found out about solar system, the process of evolution, and that the world is not flat, the stages of human embryo development, the colour of Mars (they even named it after the colour red –chevvaai) and everything other scientific discovery.
 Such a person who is able to remove his Anma and allow it to integrate with nature, will be able to get a true picture of ‘Truth’. That person is a Yogi, a human renounced of all worldly possessions. When such a person says something, it is called **Agama Pramanam.** Thiruvalluvar,  Paramahamsar , Ramanar, Jesus, Prophet, are all examples of people who had Yoga Kaatchi.  
 
