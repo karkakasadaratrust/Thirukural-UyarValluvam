@@ -202,24 +202,35 @@ When we set out to learn something from a book, we should learn to absorb it fro
 We should understand the basics of written communication. There are three levels of communication: Words, Meaning, and Emotion (Unarvu).  
 Words are used to communicate ideas. When we read (a story book, a newspaper or this blog) we go from the words to the meaning behind them. From the meaning we must move to the feeling/emotion (Unarvu in Tamil).  When we move to the Unarvu all the differences will cease to exist. The following example will help.  
 
-1.At the first level, we exchange ideas through words. But this level of communication is not free of differences. For example, the words – Mom, Amma, Momia, Ma all refer to the same thing (that is, Mother). But these words indicate a difference in language.    
+1.At the first level, we exchange ideas through **words**. But this level of communication is not free of differences. For example, the words – Mom, Amma, Momia, Ma all refer to the same thing (that is, Mother). But these words indicate a difference in language.    
 
-2.At the second level of communication we go to the meaning. Mom, Momiaa and Ma may differ in language but they all mean the same thing. So at the level of meaning, some differences are eliminated. But still, when we think of Mom, an English speaking woman wearing western clothes come to mind, Amma triggers an image of a south Indian lady wearing a saree, Momia may trigger an image of a Spanish mother. So differences still remain.  
+2.At the second level of communication we go to the **meaning**. Mom, Momiaa and Ma may differ in language but they all mean the same thing. So at the level of meaning, some differences are eliminated. But still, when we think of Mom, an English speaking woman wearing western clothes come to mind, Amma triggers an image of a south Indian lady wearing a saree, Momia may trigger an image of a Spanish mother. So differences still remain.  
 
-3.At the third level, if we move to the emotion or to the feeling of “Motherhood”, that feeling is universal. Be it an American, Indian, Chinese or Spanish, we all feel the same unconditional love when we think of Motherhood. Now, communication is complete. When two people are united at the Unarvu level, there will be no corruption in exchange of ideas.  
+3.At the third level, if we move to the emotion or to the **feeling** of “Motherhood”, that feeling is universal. Be it an American, Indian, Chinese or Spanish, we all feel the same unconditional love when we think of Motherhood. Now, communication is complete. When two people are united at the Unarvu level, there will be no corruption in exchange of ideas.  
 
-So when reading anything, we should look for the Unarvu. That will give the true intention of the author. When drinking coffee from a cup, we drink the coffee and discard the cup. The purpose of the cup is only to serve the coffee. Similarly, once we reach the meaning carried by the words, we can mentally disregard the words. And once we reach the Unarvu from the meaning, we can disregard the meaning.  
+So when reading anything, we should look for the **feeling or Unarvu**. That will give the true intention of the author. When drinking coffee from a cup, we drink the coffee and discard the cup. The purpose of the cup is only to serve the coffee. Similarly, once we reach the meaning carried by the words, we can mentally disregard the words. And once we reach the Unarvu from the meaning, we can disregard the meaning.    
+
 About five hundred ago, there was a need for an explanation of Thiruvalluar’s work. Thiruvalluvar was a man of few words. He condensed many great truths in few words. Such a technique of condensing big Truths in few words, is called Soothiram in Tamil. Tamil poetic literature is based on Soothiram. It is a science in itself.  
 
 Imagine if we have to stuff a lot of cotton in a small glass jar. We can adopt many techniques. We may roll them into threads, or small balls and stuff them in the box, pack it tightly and stuff some more and so on. When taking the cotton out, a similar technique must be employed. Only someone who understands how it was stuffed, will be able to successfully extract a small piece of cotton. Others will simply dig, push, punch and eventually break the jar in frustration. Similarly, we need a guru to tell us how to un-stuff the information from Thirukkural.  
 
-So, as time went by, languages also evolved and there was a need to translate Thirukkural. Nature gave us a Guru, saint called Parimelazhagar. He was a scholar and was one with Thriuvalluvar at the Unarvu level. He wrote a book explaining Thirukkural in conceptual and grammatical detail. Such a book that explains the concepts of another work is called Urai in Tamil. He gives conceptual and grammatical explanations on Thirukkural in his explanatory review, Parimelazhagar’s Urai. This is the book that our Guru Ilangai. Jeyaraj adopted to teach us.  
+So, as time went by, languages also evolved and there was a need to translate Thirukkural. Nature gave us a Guru, saint called **Parimelazhagar**. He was a scholar and was one with Thriuvalluvar at the **Unarvu level**. He wrote a book explaining Thirukkural in conceptual and grammatical detail. Such a book that explains the concepts of another work is called Urai in Tamil. He gives conceptual and grammatical explanations on Thirukkural in his explanatory review, Parimelazhagar’s Urai. This is the book that our Guru Ilangai. Jeyaraj adopted to teach us.  
 
 When you and I read Thirukkural, we will start with the words and search for the meaning from the dictionary. But when Parimelazhagar reads Thirukkural he already knows what the author is trying to say and then he understands why a particular word was used to express that idea. So, his explanation of Thirukkural will be unique because he will explain the unwritten concepts behind the words.   
-Umapathy Sivachariar is a well known Shaivite Guru from Chidambaram, who wrote eight out of the fourteen Shaivite Shastras in his book called Siddantha Attagam. (His guru is Maraignana Sambandar, a disciple of Arulnanandi Sivacharya. These are big names in the Shaivite family). He says that a person who has read the following six books is considered an expert in Tamil: 1) Thirukkural 2) Thiruvasagam 3) Tolkappiam 4) Parimelazhagar’s Urai 5) Periya Puranam 6) Sivangana Sithiyar.  
+
+Umapathy Sivachariar is a well known Shaivite Guru from Chidambaram, who wrote eight out of the fourteen Shaivite Shastras in his book called Siddantha Attagam. (His guru is Maraignana Sambandar, a disciple of Arulnanandi Sivacharya. These are big names in the Shaivite family). He says that a person who has read the following six books is considered an expert in Tamil:  
+1) Thirukkural  
+2) Thiruvasagam  
+3) Tolkappiam  
+4) Parimelazhagar’s Urai  
+5) Periya Puranam  
+6) Sivangana Sithiyar.  
 
 Interestingly, five of them are original books and Parimelazhagar’s Urai is the only Note for a Main Book. So this tells us that reading Parimelazhagar’s Urai will give a knowledge that is equivalent to reading one of the main books.  
-Whether we become great scholars in Tamil or not, one thing is certain: we WILL excel in living our lives when we read Thirukkural. But we should not read it as a lesson. It is essential to capture the Unarvu. Only then the 100% purpose of the book is served. It is not necessary to give importance to the words, or memorize them. Just an understanding of the fundamental idea is enough.  
+
+Whether we become great scholars in Tamil or not, one thing is certain: **we WILL excel in living our lives when we read Thirukkural.**
+
+*But we should not read it as a lesson. It is essential to capture the Unarvu. Only then the 100% purpose of the book is served. It is not necessary to give importance to the words, or memorize them. Just an understanding of the fundamental idea is enough.*  
 
 [(TOP)](https://github.com/anbarasu0504/UyarValluvam/blob/master/README.md#faq)
 
